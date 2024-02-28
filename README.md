@@ -1,7 +1,7 @@
 # Ноутбук HP Pavilion 15-eg3013ua (826Z3EA)
 
 
-![alt](https://www.google.com/url?sa=i&url=https%3A%2F%2Frozetka.com.ua%2F345152137%2Fp345152137%2F&psig=AOvVaw1G13JZxk7cDkIg4q2sKqZQ&ust=1709213592179000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJjnhYGTzoQDFQAAAAAdAAAAABAh)
+![alt](https://img.moyo.ua/img/products/5559/42_600.jpg?1708768139)
 
 ## **Основні характеристики ноутбука**
 
